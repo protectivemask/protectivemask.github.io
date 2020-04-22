@@ -29,6 +29,6 @@ The disposable masks produced by our company have excellent details such as nose
 ![](https://protectivemask.github.io/img/introduction_disposable_1.png)
 ![](https://protectivemask.github.io/img/introduction_disposable_2.png)
 
-### Contact Us
+### Contact
 * protectivemaskcn@gmail.com
 * protectivemaskzh@protonmail.com
